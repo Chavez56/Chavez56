@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Chavez
-- 👀 I’m interested in evrything about data, statistics, mathematics, sciences
+- 👀 I’m interested in everything about data, statistics, mathematics, sciences
 - 🌱 I’m currently learning about data
-- 📫 How to reach me [https://www.linkedin.com/in/muhammad-chavez-assad-patriot/]
+- 📫 How to reach me and get know more about me: [https://www.linkedin.com/in/muhammad-chavez-assad-patriot/]
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: K-popers
 
