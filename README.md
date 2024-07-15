@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning about data
 - 📫 How to reach me and get know more about me: [https://www.linkedin.com/in/muhammad-chavez-assad-patriot/]
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: K-popers
+- ⚡ Fun fact: K-popers (Not fanatic type, I just like to learn their language 😊)
 
 <!---
 Chavez56/Chavez56 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
